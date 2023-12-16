@@ -1,0 +1,11 @@
+//https://lpgenerator.ru/blog/chto-takoe-multimedia/
+//https://ru.wikipedia.org/wiki/%D0%9C%D1%83%D0%BB%D1%8C%D1%82%D0%B8%D0%BC%D0%B5%D0%B4%D0%B8%D0%B0
+//
+//
+//
+//
+//
+//
+//
+//
+//
